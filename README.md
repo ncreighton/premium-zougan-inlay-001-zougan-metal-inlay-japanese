@@ -1,0 +1,2 @@
+# premium-zougan-inlay-001-zougan-metal-inlay-japanese
+Tired of vague tutorials that leave you guessing the secrets of authentic Japanese metal inlay? This lab gives you a structured, hands-on system to master zougan and damascening from your very first project.  The Zougan Metal Inlay &amp; Japanese Damascening Art Lab transforms years of traditional craftsmanship into an accessible, step-by-step process.
